@@ -1,3 +1,3 @@
 dl k k
-# k knkj kje kjejn
- wkmrk klwm
+# I finaly got what it was talking about
+made by NB
